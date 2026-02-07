@@ -1,5 +1,5 @@
 - well this is I Eason1722
-- Rust Python Java well i'll write things I'm interersted in
+- 
 - The page INTENTIONALLY BLANK
 - OWO
 <!---
